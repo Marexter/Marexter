@@ -2,7 +2,7 @@
 - 👀 I’m interested in programming
 - 🌱 I’m currently learning c++
 - 💞️ I’m looking to collaborate on instagram
-- 📫 How to reach me  new insta= @am_shiiv
+- 📫 How to reach me on insta= @am_shiiv
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I'm just a beginner in this field and im interested in learning anything 
 
